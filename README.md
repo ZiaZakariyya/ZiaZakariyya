@@ -14,7 +14,7 @@
  
  🌱 I’m currently learning **Full Fullstack Web Development**
 
-💬 Ask me about ****
+💬 Ask me about **Anything**
 
 ⚡ Fun fact ****
 
